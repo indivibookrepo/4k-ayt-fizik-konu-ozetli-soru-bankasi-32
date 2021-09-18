@@ -1,0 +1,1 @@
+# 4k-ayt-fizik-konu-ozetli-soru-bankasi-32
